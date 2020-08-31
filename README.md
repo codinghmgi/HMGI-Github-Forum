@@ -7,8 +7,9 @@ Dan juga dibuka forum pada kolom "Issues" jika ingin bertanya dan memberikan sar
 
 Diharapkan juga dapat menyumbangkan kodingnya untuk pembelajaran bagi kita semua
 
+ps: jangan lupa untuk kunjungi website hmgi di http://www.hmgi.or.id
 
-TTD Penanggung Jawab
+TTD
 
 
 Divisi Riset dan Inovasi
