@@ -12,4 +12,4 @@ TTD Penanggung Jawab
 
 
 Divisi Riset dan Inovasi
-#PIC: edwinbrilliant@gmail.com
+#ristek.hmgi@gmail.com
